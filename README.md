@@ -1,0 +1,1 @@
+# tabela-copa-2026
